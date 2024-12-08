@@ -1,1 +1,1 @@
-# Certificações adquiridas em plataformas para ganho de conhecimento.
+# Certificações de cursos em diversas plataformas.
